@@ -1,1 +1,0 @@
-# solo-dev-opportunities
